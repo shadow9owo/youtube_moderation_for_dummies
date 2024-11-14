@@ -3,8 +3,16 @@ list of channels that break the tos and are up (ignored by youtube ofc)
 
 (the list of the urls and video links are located in list.txt)
 
-if you found something thats not on the list and want me to add it because it clearly violates the guidelines then send me a link to it at shadowdevreal@protonmail.com
+experiment ended after a year
 
-tihs repository will be updated weekly!
+banned or removed bad content valid
+27
 
-number of banned accounts from this list : 0 (updated 13/03/2024)
+missed valid
+48
+
+every 1.777 channel was banned.
+
+and in total from 74 channels only 27 were banned thats bad really fucking bad
+
+topic of the video only fans creators flooding the site with innapropriate content and a shit ton of obvious positives missed
