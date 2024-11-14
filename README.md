@@ -15,4 +15,6 @@ every 1.777 channel was banned.
 
 and in total from 74 channels only 27 were banned thats bad really fucking bad
 
-topic of the video only fans creators flooding the site with innapropriate content and a shit ton of obvious positives missed
+mainly suggestive (no age restriction) onlyfans creators and erp asmr creators were missed
+
+worst channel from this experiment that was missed award goes to:
