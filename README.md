@@ -11,7 +11,7 @@ banned or removed bad content valid
 missed valid
 48
 
-every 1 in 1.777 channel was banned. (aprx 36%)
+every 1 in 1.777 channel was banned. (aprx 36%, max 45%)
 
 and in total from 74 channels only 27 were banned and thats bad really fucking bad
 
