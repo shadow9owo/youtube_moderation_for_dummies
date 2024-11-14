@@ -15,6 +15,7 @@ every 1.777 channel was banned.
 
 and in total from 74 channels only 27 were banned thats bad really fucking bad
 
-mainly suggestive (no age restriction) onlyfans creators and erp asmr creators were missed
+mainly suggestive (no age restriction) onlyfans creators and erp asmr creators and gacha heat (gacha life softcore porn) content creators were missed
 
 worst channel from this experiment that was missed award goes to:
+https://www.youtube.com/@daddysounds
